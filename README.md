@@ -1,2 +1,0 @@
-# Dayummm Ganda mo zeaaaa
-
